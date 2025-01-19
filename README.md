@@ -1,6 +1,6 @@
-## <a href="https://rebrand.ly/macortami">JUSTİN TV İZLEMEK İÇİN TIKLA!</a>
+## <a href="https://cutt.ly/Ne2EDtML">JUSTİN TV İZLEMEK İÇİN TIKLA!</a>
 
-<a href="https://rebrand.ly/macortami"><img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSnYu5hr9DzG1X8HU4kSOJiu6pFjv4spGCNAg&s"></a>
+<a href="https://cutt.ly/Ne2EDtML"><img src="https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSnYu5hr9DzG1X8HU4kSOJiu6pFjv4spGCNAg&s"></a>
 
 # Justin TV ⭐ Justin TV Canlı Maç İzle ⭐ Justin TV Şifresiz İzle
 
